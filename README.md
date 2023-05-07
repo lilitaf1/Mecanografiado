@@ -1,0 +1,2 @@
+# Mecanografiado
+Redacción y traducción
